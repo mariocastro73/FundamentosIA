@@ -5,4 +5,5 @@ Aquí iremos colgando algunos notebooks y curiosidades que os pueden ayudar en v
 
 Ahora, a pensar...
 
-Sim
+Simón y Mario
+
